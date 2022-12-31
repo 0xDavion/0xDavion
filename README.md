@@ -1,6 +1,5 @@
-##### We Are Without Borders, Our Purpose Defined By The Era We Live In.
+##### We can build anything we want given enough time.
 
-🐍📦
 
 <!--
 
